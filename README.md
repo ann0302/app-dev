@@ -1,2 +1,5 @@
-# app-dev
-My first repository
+***My 18th Birthday***
+![89258518_675620019914519_2099230643912179712_n](https://github.com/ann0302/app-dev/assets/137422234/803650e6-1422-4bb5-9801-b2eed9cc4b84)
+
+![88306806_675620123247842_6556469178813906944_n](https://github.com/ann0302/app-dev/assets/137422234/a0989a30-3d0f-48df-aaa3-1e8f4eddb93e)
+
